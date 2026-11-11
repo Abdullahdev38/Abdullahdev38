@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **killerdragono5.com** For Collaboration/Project or Anythin
 - 👯 **I’m looking to collaborate on: None
 - 🤔 **I’m looking for help with: Coding
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** killerdragono5
+- 📫 **How to reach me:** killerdragonno2@gmail.com
 - 😄 **Pronouns: Student
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
